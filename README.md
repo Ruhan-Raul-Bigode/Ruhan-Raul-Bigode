@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ele dele
 - ⚡ Fun fact: i'm a little cat
 - 
-- 
+![](https://media.tenor.com/q8QcThEhFecAAAAi/szentek-baby.gif)
 ![](https://media1.tenor.com/m/_yoDqyYP8aYAAAAd/casino77-slot-machine.gif)
