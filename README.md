@@ -10,4 +10,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 00001117535022sp@al.educacao.sp.gov.br
 - 😄 Pronouns: ele dele
 - ⚡ Fun fact: i'm a little cat
-![](https://media1.tenor.com/m/Nby3GWw673QAAAAd/monkey-monkey-mommy.gif) 
+
+- 
+![](https://media.tenor.com/-WJZMWuiy38AAAAM/bom-dia-valtatu%C3%AD-bom-dia.gif) 
