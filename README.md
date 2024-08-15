@@ -1,5 +1,5 @@
 Ruhan Raul Bigode 
-<!--
+
 **Ruhan-Raul-Bigode/Ruhan-Raul-Bigode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -11,4 +11,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ele dele
 - ⚡ Fun fact: i'm a little cat
 ![](https://media1.tenor.com/m/Nby3GWw673QAAAAd/monkey-monkey-mommy.gif) 
--->
